@@ -1,3 +1,1 @@
-**Motivated**
-*Commited*
-_really **focused** _
+**Motivated** and *Commited*
