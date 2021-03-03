@@ -1,2 +1,5 @@
 * Travel
-* Play Drums
+* Music
+* Drums
+* Nature
+* Games
